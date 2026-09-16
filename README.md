@@ -27,5 +27,5 @@ Avançar na lingua Inglesa
 
 ## Como falar comigo 
 [linkedin] https://www.linkedin.com/in/joao-clicio-05458620b/
-[joaoclicio507@gmail.com]
+joaoclicio507@gmail.com
 
